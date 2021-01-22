@@ -7,3 +7,6 @@ My name is Anderson Jean, I'm 21 years old and I'm a student of Systems Analysis
 - programadoremformacao@gmail.com 🌐
 
 ![programador](https://github.com/AndersonJean/AndersonJean/blob/main/dormrm.gif)
+
+##  
+ou você programa ou será programado.💻☕⚠
